@@ -1,1 +1,1 @@
-Olá! Sou João Pedro Pogere, e Estou Cursando Ciência da Computação
+Olá! Sou João Pedro Pogere, e Estou Cursando Ciência da Computação no CEUB.
